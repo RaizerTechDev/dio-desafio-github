@@ -3,3 +3,7 @@
 
 ### Links úteis
 [Sintaxe Basica Markdown](https://www.markdownguide.org/basic-syntax/)
+
+▶ 😀👀Bora lá....
+
+Gostou, então já deixa a🌟
